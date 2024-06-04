@@ -32,4 +32,3 @@ March contribution: 9.0%
 Summary
 The report indicates significant progress in the call center's performance, especially in the areas of paperless and ISE assisted loans. The steady increase in digital sales methods reflects a positive shift towards more efficient processes. The data showcases the call center's growing impact on overall business, with notable improvements month over month.
 
-© 2024 Izwe Loans Kenya Limited. All rights reserved.
